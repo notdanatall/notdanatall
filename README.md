@@ -7,4 +7,3 @@ My name is Daniel
 - ❓ AMA
 - I ♥ Arduino
 - Trying to learn: Java, C#, C++
-- 
