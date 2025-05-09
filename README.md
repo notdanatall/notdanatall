@@ -1,8 +1,16 @@
-### Ahoj/Hello👋
+### dzien dobry
 
 - I ♥ ESP
-- C#, php, Blazer, Java
-- *Já nemám commity protože můj kód actually vydělává* - Ein 2025
+- Csharp, Blazor, Java, JS
+- I HEART CHATGPT
+- *Somewhat* normal
+- I will not elaborate
+  
+MEOW MEOW MEOW MEOW MEOW MEOW MEOW MEOW MEOW MEOW MEOW MEOW MEOW MEOW MEOW MEOW MEOW MEOW
+MEOW MEOW MEOW MEOW MEOW MEOW MEOW MEOW MEOW MEOW MEOW MEOW MEOW MEOW MEOW MEOW MEOW MEOW
+MEOW MEOW MEOW MEOW MEOW MEOW MEOW MEOW MEOW MEOW MEOW MEOW MEOW MEOW MEOW MEOW MEOW MEOW
+MEOW MEOW MEOW MEOW MEOW MEOW MEOW MEOW MEOW MEOW MEOW MEOW MEOW MEOW MEOW MEOW MEOW MEOW
+MEOW MEOW MEOW MEOW MEOW MEOW MEOW MEOW MEOW MEOW MEOW MEOW MEOW MEOW MEOW MEOW MEOW MEOW
 
 - boykissing [ein](https://github.com/eingorz) & [wív](https://github.com/veef77) rn
 - I'm being genderbent against my will :,c
