@@ -5,6 +5,9 @@
 - I HEART CHATGPT
 - *Somewhat* normal
 - I will not elaborate
+ 
+- boykissing [ein](https://github.com/eingorz) & [wív](https://github.com/veef77) rn
+- I'm being genderbent against my will :,c
   
 MEOW MEOW MEOW MEOW MEOW MEOW MEOW MEOW MEOW MEOW MEOW MEOW MEOW MEOW MEOW MEOW MEOW MEOW
 MEOW MEOW MEOW MEOW MEOW MEOW MEOW MEOW MEOW MEOW MEOW MEOW MEOW MEOW MEOW MEOW MEOW MEOW
@@ -12,7 +15,5 @@ MEOW MEOW MEOW MEOW MEOW MEOW MEOW MEOW MEOW MEOW MEOW MEOW MEOW MEOW MEOW MEOW 
 MEOW MEOW MEOW MEOW MEOW MEOW MEOW MEOW MEOW MEOW MEOW MEOW MEOW MEOW MEOW MEOW MEOW MEOW
 MEOW MEOW MEOW MEOW MEOW MEOW MEOW MEOW MEOW MEOW MEOW MEOW MEOW MEOW MEOW MEOW MEOW MEOW
 
-<img src="https://cdn.discordapp.com/attachments/1119597850486124576/1370515017568616538/image.png?ex=681fc713&is=681e7593&hm=98061986a3c1e8ab27ac8c013ee995b1502b0be7b3b08f79c432715014760e3b&" width=30%>
 
-- boykissing [ein](https://github.com/eingorz) & [wív](https://github.com/veef77) rn
-- I'm being genderbent against my will :,c
+<img src="https://cdn.discordapp.com/attachments/1119597850486124576/1370515017568616538/image.png?ex=681fc713&is=681e7593&hm=98061986a3c1e8ab27ac8c013ee995b1502b0be7b3b08f79c432715014760e3b&" width=30%>
