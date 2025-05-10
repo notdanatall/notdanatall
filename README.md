@@ -6,7 +6,7 @@
 - *Somewhat* normal
 - I will not elaborate
  
-- boykissing [ein](https://github.com/eingorz) & [wív](https://github.com/veef77) rn
+- matching w/ [ein](https://github.com/eingorz) & [wív](https://github.com/veef77) rn
 - I'm being genderbent against my will :,c
   
 MEOW MEOW MEOW MEOW MEOW MEOW MEOW MEOW MEOW MEOW MEOW MEOW MEOW MEOW MEOW MEOW MEOW MEOW
