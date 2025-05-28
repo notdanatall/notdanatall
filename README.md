@@ -1,7 +1,5 @@
-### dzien dobry
-- I ♥ ESP
-- Csharp, Blazor, Java, JS
-- I HEART CHATGPT
-- *Somewhat* normal
+### HI
+- Csharp, Blazor, Java, JS, Starting with React
+- ChatGPT is a good servant, but a bad master
   
-MEOW 
+MEOW :3
